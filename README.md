@@ -9,5 +9,4 @@
 - 🤔 I’m looking for help with ...?
 - 💬 Ask me about cats!!
 - 📫 How to reach me: liweijiayi@hotmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: I am a cat XD
+- 😄 Pronouns: she/her
